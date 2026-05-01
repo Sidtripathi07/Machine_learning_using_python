@@ -111,7 +111,7 @@ Contributions and suggestions are welcome.
 ## 📬 Connect
 
 - 📧 Email: siddzzxx07@gmail.com  
-- 💼 LinkedIn: https://linkedin.com/in/siddharth-tripathi  
+- 💼 LinkedIn: https://www.linkedin.com/in/siddharth-tripathi-547236232/  
 - 🌐 GitHub: https://github.com/Sidtripathi07  
 
 ---
